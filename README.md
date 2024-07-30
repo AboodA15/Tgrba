@@ -12,3 +12,5 @@ https://www.dropbox.com/scl/fi/swyf1a3s9x1losouwcl0l/landsg_lorz.rar.zip?rlkey=z
 
 https://www.dropbox.com/scl/fi/ozawuah6c1adewvrraabr/Abo3Zmh_hilux_v1.zip?rlkey=pksvkrcg6cvbh4pljzlry5lwd&st=4q5bv92a&dl=1
 https://www.dropbox.com/scl/fi/n3j7q0wv79hd53rqohi3b/landsg.zip?rlkey=lxm01mkxhjtw79pzzyygjcj48&st=w2381jrt&dl=1
+
+https://www.dropbox.com/scl/fi/og4k2xeo8kqhg0wmgb4wq/landsg_lorz.rar?rlkey=ab1uask301mu93jh9pe9vdkaw&st=4cz74ee3&dl=1

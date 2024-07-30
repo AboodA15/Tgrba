@@ -8,9 +8,6 @@ https://www.dropbox.com/scl/fi/j1udbrai35fe5exlyquxf/taskhulix_by_3dm-2.rar?rlke
 https://www.dropbox.com/scl/fi/mgmo7yid6v5qnq6iho59r/TL_MT_Rims.zip?rlkey=bkd4wymvfitosyek0zbj0lw8f&st=igsqx6re&dl=1
 999999999
 
-https://www.dropbox.com/scl/fi/swyf1a3s9x1losouwcl0l/landsg_lorz.rar.zip?rlkey=zpudlshy0dguopkrq3p8cjc8v&st=jta4h4xw&dl=1
+https://www.dropbox.com/scl/fi/21716dg0bv9ym8mbextaa/2012-Toyota-Hilux-Double-Cab.zip?rlkey=nlyxr0r9xg2geezvxcj4eu3qy&st=7go0f5zu&dl=1
 
-https://www.dropbox.com/scl/fi/ozawuah6c1adewvrraabr/Abo3Zmh_hilux_v1.zip?rlkey=pksvkrcg6cvbh4pljzlry5lwd&st=4q5bv92a&dl=1
-https://www.dropbox.com/scl/fi/n3j7q0wv79hd53rqohi3b/landsg.zip?rlkey=lxm01mkxhjtw79pzzyygjcj48&st=w2381jrt&dl=1
-
-https://www.dropbox.com/scl/fi/og4k2xeo8kqhg0wmgb4wq/landsg_lorz.rar?rlkey=ab1uask301mu93jh9pe9vdkaw&st=4cz74ee3&dl=1
+https://www.dropbox.com/scl/fi/zofnitypajp46jvz0syz4/taskhulix.rar?rlkey=2ts28vuz23yniy94ehsobw1se&st=w3n8hjdp&dl=1
